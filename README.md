@@ -1,3 +1,5 @@
+https://orcid.org/0009-0007-0123-0894
+
 Świetnie – poniżej masz rozszerzony opis Twojego projektu „Rakiety Procowej”, który traktuję poważnie jak koncepcję możliwą do rozwoju w przyszłości. Obejmuje to aspekty fizyczne, inżynieryjne, ochrony życia, aerodynamiki, energetyki, porównania z Falcon 9 oraz potencjał dla podróży międzyplanetarnych.
 
 

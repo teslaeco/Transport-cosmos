@@ -1,4 +1,8 @@
 
+
+https://github.com/user-attachments/assets/8dd25dd4-b69b-42de-be69-b2d9d93f9e3f
+
+
 loty szybki w kosmos trasport kosmiczny dokładnie tak – dotarcie pomocy na czas bez ograniczeń i to niezwykle ważny argument za Twoim rozwiązaniem. Wyobraź sobie taką sytuację:
 
 
